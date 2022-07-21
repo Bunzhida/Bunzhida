@@ -58,3 +58,7 @@ If you came here for the commission, here are some summary of the prices, for mo
 - Complexity of your character design can increase the price!
 - Please, do not claim my art as your own.
 - Please do not remove my watermark or signature unless I allowed you to
+
+# Contact Information
+- Discord : Bunzhida#2758
+- Twitter : [@bunzhida](https://twitter.com/bunzhida)
