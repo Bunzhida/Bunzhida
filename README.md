@@ -54,8 +54,8 @@ If you came here for the commission, here are some summary of the prices, for mo
 ### Notes!
 - Payment via PayPal or Ko-fi.
 - You need at least a reference picture of your character
-- You need to use your own ORIGINAL character
-- Complexity of your character design can increase the price!
+- You need to use your own ORIGINAL character, although you can use other character if you have permission to it being commissioned
+- Complexity of the character design can increase the price!
 - Please, do not claim my art as your own.
 - Please do not remove my watermark or signature unless I allowed you to
 
