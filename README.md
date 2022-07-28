@@ -9,6 +9,7 @@ OwO
 
 If you came here for the commission, here are some summary of the prices, for more information, go to [my website!](https://bunzhida.000webhostapp.com/commissions)
 # Commission Information
+Slots open : 3 out of 3
 ## Prices
 ### Headshot
 - Lineart : $5
