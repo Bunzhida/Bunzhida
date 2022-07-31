@@ -58,6 +58,8 @@ Slots open : 3 out of 3
 - Please, do not claim my art as your own.
 - Please do not remove my watermark or signature unless I allowed you to
 
+- Any tips (money or wise words) will be appreciated, you don't have to though
+
 # Contact Information
 - Discord : Bunzhida#2758
 - Twitter : [@bunzhida](https://twitter.com/bunzhida)
