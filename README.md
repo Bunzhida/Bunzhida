@@ -7,7 +7,7 @@
 OwO
 --->
 # Commission Information
-Slots open : 3 out of 3
+CURRENTLY PAYPAL IS BLOCKED IN MY COUNTRY, COMMISSIONS ARE LOCKED UNTIL FURTHER INFORMATION
 ## Prices
 ### Headshot
 - Lineart : $3
