@@ -10,17 +10,22 @@ OwO
 4 slots available out of 4!
 ## Prices
 ### Headshot
-- Lineart : $3
-- Colored : $5
-- Shaded : $7
+- Lineart : $4
+- Colored : $6
+- Shaded : $8
 ### Halfbody
-- Lineart : $5
-- Colored : $8
-- Shaded : $10
+- Lineart : $6
+- Colored : $10
+- Shaded : $12
 ### Fullbody
+#### Feral
+- Lineart : $12
+- Colored : $16
+- Shaded : $20
+#### Anthro
 - Lineart : $10
-- Colored : $15
-- Shaded : $17
+- Colored : $14
+- Shaded : $18
 
 ## Samples
 ### Headshot
