@@ -48,9 +48,8 @@ OwO
 - Maximum 3 characters as of right now, the more character you add the more longer it will took to finish
 
 ### Fetishes
-- Vore [(Examples)](https://github.com/Bunzhida/Bunzhida/blob/main/vore/README.md):
-  - Without prey : +$4
-  - With prey : +(additional character price) & +$2
+- Vore:
+  [Read here](https://github.com/Bunzhida/Bunzhida/blob/main/vore/README.md)
 
 ### NSFW
 - Currently not available
