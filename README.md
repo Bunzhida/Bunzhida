@@ -59,8 +59,9 @@ OwO
 - You need at least a reference picture of your character
 - You need to use your own ORIGINAL character, although you can use other character if you have permission to it being commissioned
 - Complexity of the character design can increase the price!
-- Please, do not claim my art as your own.
-- Please do not remove my watermark or signature unless I allowed you to
+- Please, do not say that the art is drawn by yours!
+- Any edits is fine with me as long as you follow the note below
+- Please do not remove (or intentionally fading away) my watermark or signature unless I allowed you to
 
 - Any tips (money or wise words) will be appreciated, you don't have to though
 
