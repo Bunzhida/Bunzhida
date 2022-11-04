@@ -3,6 +3,9 @@
 - 👀 I’m interested in programming UI apps and games
 - 🌱 I’m currently learning Python, C# and C++
 
+# FOR THE TWITTER PEOPLE
+READ MY DISCLAIMERS [HERE](https://github.com/Bunzhida/Bunzhida/twitter/main/)
+
 <!--- 
 OwO
 --->
