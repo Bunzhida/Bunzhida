@@ -5,7 +5,7 @@ I was invited by her to a server so that I can talk and discuss about art and im
 She also has her best friend, I don't know if it's still the case but I forgot what their name is.
 
 I kept on talking there, mostly being ignored but that's to be expected...
-Altho I was in a really left-out mood for everything, and instead of holding it, I burst out and started DM-ing Jackie and blaming on him for everything she haven't done
+Altho I was in a really left-out mood for everything, and instead of holding it, I burst out and started DM-ing Jackie and blaming on her for everything she haven't done
 
 It was a really stupid move
 
