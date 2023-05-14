@@ -31,8 +31,6 @@ but after that, in 2020. I lost contact with the server.
 I also found some friends here too! This is where I really started to get interested in rhythm games, because the people there are challenging themselves
 with who can get the highest scores, there are also currencies, items and some fun stuff you can do in the server. Owned by TechNewVideo aka NeoTechVideo
 
-At 2020, I abandoned the account because of the [StarberryGoatcake drama](StarberryGoatcake.md)...
-More interesting stuff happens, the owner got a mental breakdown! Now the server is messed up and people are leaving
-2021-2022 is an intense year for MPD, two owners of MPD fight each other on who is the best at managing servers
+At 2020, I abandoned the account because of the [StarberryGoatcake drama](StarberryGoatcake.md)... More interesting stuff happens, the owner got a mental breakdown! Now the server is messed up and people are leaving
 
-In the end nobody really wins, and MPD has now become a legacy.
+2021-2022 is an intense year for MPD, two owners of MPD fight each other on who is the best at managing servers. In the end nobody really wins, and MPD has now become a legacy.
